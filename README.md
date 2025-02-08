@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing 
 - 💞️ I’m looking to collaborate on nothing
-- 😄 Pronouns: was/were
+- 😄 Pronouns: was/were/femail/email/gmail
 - ⚡ Fun fact: listen, I'm funny
 
 <!---

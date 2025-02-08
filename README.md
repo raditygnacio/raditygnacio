@@ -1,8 +1,7 @@
 - 👋 Hi, I’m @raditygnacio
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning nothing 
-- 💞️ I’m looking to collaborate on nothing 
-- 📫 How to reach me nothing 
+- 💞️ I’m looking to collaborate on nothing
 - 😄 Pronouns: was/were
 - ⚡ Fun fact: listen, I'm funny
 
